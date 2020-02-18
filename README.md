@@ -1,1 +1,1 @@
-https://Zakodichniy.github.io/rsschool-cv/cv
+https://Zakodichniy.github.io/rsschool-cv/
